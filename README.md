@@ -12,4 +12,5 @@ Mes premiers pas furent timide, hésitant, mes os craquant de toutes part à cha
 J'eus à peine le temps de réfléchir que mon squelette se mit à courrir en direction d'un arbre afin de m'y cacher de l'inconnu qui était à ma poursuite. Bien caché, je puis enfin regarder qui en avait après moi. Après un rapide coup d'oeil, je reconnus très facilement Albert, le gardien du cimetière, qui faisait son tour quotidien. Après ce moment intense, je m'assis tant bien que mal au pied de mon arbre afin de me questionner sur mon avenir incertain. 
 
 AYant peur de la réaction d'autrui, je pris la décision de m'enfuir, était-ce là ma vrai nature ? Suis-je un trouillard ? Ou bien ai-je pris la bonne décision ? Quoi qui l'en soit je pris la direction opposé au pas. Au fil de mon avancé je me rendit compte que mon odorat disparu. Ainsi que mon sens du touché. Rien que ça !
->>>>>>> 687b3cda82168831bfa9e1b6d3f5351a494a5afc
+
+Le ciel est sombre, la lueure de la lune frappe l'horizon et le silence domine la plaine. Je n'ai plus mon odorat mais je peux imaginer cette terre humide de reste de feuilles et de cadavres d'insectes sous mes pieds, à chacun de mes pas. 
