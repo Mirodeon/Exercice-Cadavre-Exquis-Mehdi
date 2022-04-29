@@ -8,3 +8,5 @@ Réussir péniblement à vous extriper de cette fosse pour en arriver à faire l
 Eh bien, il s'agit de mon réveil à moi, Monsieur Cadavre.
 
 Mes premiers pas furent timide, hésitant, mes os craquant de toutes part à chaque mouvement. Un bruit sinistre qui me suivrait pour toujours. J'avançais pourtant, souhaitant m'éloigner de cette fosse d'où je venais de me réveiller. Mais où allez ? Qui était-je ? Seulement Monsieur Cadavre ? Des bruits de pas pressé m'interpelèrent bientôt. J'hésitais, devrais-je rapidement me cacher de celui qui arriverait d'une seconde à l'autre?
+
+AYant peur de la réaction d'autrui, je pris la décision de m'enfuir, était-ce là ma vrai nature ? Suis-je un trouillard ? Ou bien ai-je pris la bonne décision ? Quoi qui l'en soit je pris la direction opposé au pas. Au fil de mon avancé je me rendit compte que mon odorat disparu. Ainsi que mon sens du touché. Rien que ça !
